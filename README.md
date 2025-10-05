@@ -1,6 +1,6 @@
 # Global Childhood Immunization: Inequality Patterns and Determinants
 
-👉 [Click here to the presentation]([https://yashdeole.me](https://prezi.com/view/z7tPVH25avFMDa5GJLQi/))
+👉 [Click here to the presentation]([https://yashdeole.me](https://prezi.com/view/z7tPVH25avFMDa5GJLQi/)
 
 ## Project Overview
 
