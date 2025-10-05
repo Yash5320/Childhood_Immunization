@@ -1,6 +1,7 @@
 # Global Childhood Immunization: Inequality Patterns and Determinants
 
-👉 [Click here to view the Full Story](https://prezi.com/view/z7tPVH25avFMDa5GJLQi/)
+👉 <a href="https://prezi.com/view/z7tPVH25avFMDa5GJLQi/" target="_blank" rel="noopener noreferrer">Full Story</a>
+
 
 ## Project Overview
 
